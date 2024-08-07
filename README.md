@@ -1,6 +1,6 @@
 # FreeCloud机场官网地址
 
-最新地址：[hkbn.xyz](https://hkbn.xyz/#/register?code=dQMxrIfm)
+最新地址：[hkbn.xyz](https://zero.2c.lol/#/register?code=dQMxrIfm)
 
 ## FreeCloud介绍
 
